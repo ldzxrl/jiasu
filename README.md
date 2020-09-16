@@ -12,7 +12,7 @@
     
 `无限的流量  极致的速度`
 
-下载地址： [下载地址](https://vipviptv.com/share.html?channel=s3 "点击下载")
+下载地址： [下载地址](https://cjyffmmy.com/share.html?channel=s3 "点击下载")
 
 # 版权声明
 请随意分发，勿做商业使用。
